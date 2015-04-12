@@ -1,1 +1,1 @@
-License by me
+Don't sue me.
